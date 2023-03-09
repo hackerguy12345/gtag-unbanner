@@ -1,6 +1,5 @@
 # gtag-unbanner
 
-DOWNLOAD https://assets.zyrosite.com/YKbLKN2M7QhzOZPw/gtag-unbanner-A1ae6RkJkgTb50xX.exe
 
 this well unban you form gtag and gens alt gtag accs for steam and oculus 
 
